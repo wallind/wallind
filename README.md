@@ -1,6 +1,5 @@
 ### I go by HackerMan0 and I enjoy coding 👨‍💻
-
-![IMG_20190102_093829](https://user-images.githubusercontent.com/32135045/117207762-51a59980-adc2-11eb-8d5b-ed338efd3c51.jpg)
+![IMG_20190102_093829](https://user-images.githubusercontent.com/32135045/117208528-3a1ae080-adc3-11eb-8142-61084f3aab82.jpg)
 
 
 <!--
